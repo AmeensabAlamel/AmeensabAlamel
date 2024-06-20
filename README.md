@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AmeensabAlamel
-- 👀 I’m interested in Data Analyst
+- 👀 I’m interested in Software Development and Data Analyst
 - 🌱 I’m currently Pursuing Master's of Computer Application
 - 💞️ I’m looking to collaborate on Internships on Data Analyst
 - 📫 How to reach me Contact NO:- 8618483646
